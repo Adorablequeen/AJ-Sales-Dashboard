@@ -110,4 +110,4 @@ Ideal for **strategic planning**, **product targeting**, and **customer engageme
 **Aishat Atanda**  
 Data Analyst & BI Developer  
 📧 [atandaaishat@gmail.com]
-🔗 [LinkedIn / Portfolio link]
+🔗 [LinkedIn]https://www.linkedin.com/in/aishat-atanda-5b4782263
